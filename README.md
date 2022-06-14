@@ -1,0 +1,3 @@
+- 👋 Hey, I’m Elsa
+- 📖 I'm currently studying Environmental Geoscience
+- 🌱 I am interested in learning about the natural world, human's place within it and how new and innovative technology can help us tackle climate change 
